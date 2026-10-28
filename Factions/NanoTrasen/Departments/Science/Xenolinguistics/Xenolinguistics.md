@@ -1,0 +1,1 @@
+NanoTrasen's Xenolinguistics department is dedicated to understanding the alien langauge spoken into sophonts' minds by artifacts. The intention is to understand the knowledge of the ancient civilization contained in the bluespace tide.
