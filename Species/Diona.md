@@ -15,3 +15,8 @@ Dionae
 	* Co-evolved with bluespace?
 	* Most sophonts disrupt conscious bluespace- dionae strengthen it and are incorporated into it- They meld with it into another layer of gestalt consciousness.
 	* First to discover stable supermatter and are intrinsically the best at replicating it due to how stable supermatter is made
+* Work for NT: initial ? Write later. Kidnapping? First contact gone wrong? etc. Diaspora
+	* eventually a Diona can begin to gain a defined sense of self learned from other cultures
+		* Exiled from Diona society/wide gestalt consciosuness
+		* Become extremely resistant to de-forming/mixing nymphs with another diona
+		* Impacts on bluespace shift towards that of other species

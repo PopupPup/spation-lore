@@ -1,0 +1,1 @@
+Simply put, bluespace is the collective conscious. 
