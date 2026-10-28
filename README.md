@@ -1,0 +1,1 @@
+This is a folder in an obsidian vault where I store my lore ideas for Space Station 14.

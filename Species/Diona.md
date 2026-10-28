@@ -20,3 +20,4 @@ Dionae
 		* Exiled from Diona society/wide gestalt consciosuness
 		* Become extremely resistant to de-forming/mixing nymphs with another diona
 		* Impacts on bluespace shift towards that of other species
+		* diaspora have culture that is a mish-mash of other cultures, primarily human due to work for NT
